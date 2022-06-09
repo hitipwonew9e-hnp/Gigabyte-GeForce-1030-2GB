@@ -1,0 +1,1 @@
+# Gigabyte-GeForce-1030-2GB
